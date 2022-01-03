@@ -2,7 +2,7 @@ don't care + didn't ask + cry about it + stay mad + get real + L + mald seethe c
 
 professionnal algorithm writer
 
-<img src="gif.gif" alt="hackerman" width="610" height="900">
+<img src="gif.gif" alt="hackerman" width="610" height="900" style="display:block;margin:auto;">
 
 <!--
 **mattpoker123/mattpoker123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
