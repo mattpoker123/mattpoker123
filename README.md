@@ -1,4 +1,6 @@
-### Hi there 👋
+don't care + didn't ask + cry about it + stay mad + get real + L + mald seethe cope harder + basic + skill issue + ratio
+
+professionnal algorithm writer
 
 <!--
 **mattpoker123/mattpoker123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
